@@ -3,3 +3,5 @@
 Freeing the world from 'Freemium' streaming services!
 
 At OpenStream, we believe that everyone should have access to the content they love, ad-free, so we'll make it that way!
+
+**Join our Discord!** https://discord.com/invite/pEfPqSee
